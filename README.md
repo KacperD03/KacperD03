@@ -8,4 +8,4 @@
 
 🔗 LinkedIn: [linkedin.com/in/kacperdrożdż](https://www.linkedin.com/in/kacper-dro%C5%BCd%C5%BC-bb7202361/)
 
-🌐 Portfolio: In Process 
+🌐 Portfolio: [KD Portfolio](https://kdportfolioweb.netlify.app/)

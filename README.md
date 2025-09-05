@@ -5,5 +5,7 @@
 🚀 Always learning, building, and experimenting.
 
 📫 Email:  Kacperdrozdz@student.agh.edu.pl
+
 🔗 LinkedIn: [linkedin.com/in/kacperdrożdż](https://www.linkedin.com/in/kacper-dro%C5%BCd%C5%BC-bb7202361/)
+
 🌐 Portfolio: In Process 
